@@ -1,1 +1,4 @@
-# [hongchuxi.github.io](https://hoo.be/hxmt)
+# [关于相遇与初心‌](https://ysmao-online.gitbook.io/ysmao-online-docs/)
+在茫茫人海中遇见你，是我这辈子最美的奇迹。‌‌
+1 于千万人之中遇见你，不是早一步，也不是晚一步，而是恰好你回头，我抬头，便定格了一生的温柔。‌‌
+2 你是我生命中的奇迹，每一次心跳都为你而跳动，每一次呼吸都因你而存在。‌‌
